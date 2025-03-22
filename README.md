@@ -1,2 +1,8 @@
 # Arunti-API-S
-Cracking websites and processces for ai api keys and more. This is still beta and the trial version is free for unlimited use but basic features
+Arunti API-S | Breaking limits, unlocking AI API keys & more.
+
+🚀 Beta Access: Free unlimited trial with core features.
+💳 Payment: [ Payment With Nitro ]
+📩 DM: xozo_xoxo on Discord for access.
+
+⚠️ Be patient—don’t waste my time. Found bugs? Report them via DM.
